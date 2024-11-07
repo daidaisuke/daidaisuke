@@ -19,10 +19,18 @@
   <img src="https://visitcount.itsvg.in/api?id=daidaisuke&label=view%20view%20view&color=3&icon=7&pretty=false" />
 </a>
   <br>
-         <br> ${\textsf{\color{#8dc75d}c + h okay ○˚ i love clem}}$ 
+         <br> ${\textsf{\color{#8dc75d}c + h welcomed ○˚ i love clem}}$ 
  <br>
   ${\textsf{\color{#8dc75d}  real life picture of me: }}$ 
   </p>
 <p align="center">
   <img src="https://files.catbox.moe/78dyf9.png" />
+</p>
+<p align="center">
+ ${\textsf{\color{#8dc75d}Why did Wiz Khalifa say this???? :}}$
+</p>
+<p align="center">
+  <img src="https://files.catbox.moe/8xj2gd.png" />
+ <br>
+ <img  src="https://files.catbox.moe/xe68im.png" />
 </p>
