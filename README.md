@@ -34,3 +34,7 @@
  <br>
  <img  src="https://files.catbox.moe/xe68im.png" />
 </p>
+<br>
+<p align="center">
+${\textsf{\color{#8dc75d}coding creds to shinminase and kittinanx on github + inspo from ROTTMNT !!!}}$
+</p>
