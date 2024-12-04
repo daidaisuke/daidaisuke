@@ -6,7 +6,7 @@
   <img src="https://files.catbox.moe/mewggv.png" />
  
 <br>
-<br> ${\textsf{\color{#8dc75d}꘩ juno/aster ⋆ he/she ⋆ number 1 daisuke fan (non-negotiable) ୧ }}$
+<br> ${\textsf{\color{#8dc75d}꘩ juno/aster ⋆ he/she ⋆ number 1 orpheus fan (non-negotiable) ୧ }}$
    <br>
    <br>
   　　<a href="https://rentry.co/rengokus-princess">rentry</a>　𖹭　<a href="https://daidaisuke.atabook.org/">sign atabook</a>　𖹭　<a href="https://en.pronouns.page/@daidaisuke">woke</a>　𖹭　<a href="https://lesbiansanemi.straw.page/">sign strawpage</a>
