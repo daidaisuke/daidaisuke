@@ -6,10 +6,10 @@
   <img src="https://files.catbox.moe/mewggv.png" />
  
 <br>
-<br> ${\textsf{\color{#8dc75d}꘩ juno/aster ⋆ he/she ⋆ number 1 orpheus fan (non-negotiable) ୧ }}$
+<br> ${\textsf{\color{#8dc75d}꘩ juno/izzi ⋆ he/she ⋆ number 1 draco fan (non-negotiable) ୧ }}$
    <br>
    <br>
-  　　<a href="https://rentry.co/rengokus-princess">rentry</a>　𖹭　<a href="https://daidaisuke.atabook.org/">sign atabook</a>　𖹭　<a href="https://en.pronouns.page/@daidaisuke">woke</a>　𖹭　<a href="https://lesbiansanemi.straw.page/">sign strawpage</a>
+  　　<a href="[https://www.youtube.com/watch?v=5cqNWft-5dc&ab_channel=2000X-50X]">REMAKING</a>　𖹭　<a href="https://www.youtube.com/watch?v=5cqNWft-5dc&ab_channel=2000X-50X">REMAKING</a>　𖹭　<a href="https://www.youtube.com/watch?v=5cqNWft-5dc&ab_channel=2000X-50X">REMAKING</a>　𖹭　<a href="https://www.youtube.com/watch?v=5cqNWft-5dc&ab_channel=2000X-50X">REMAKING</a>
      <br> 
  <br>
    <img src="https://files.catbox.moe/vxdacd.png" />
